@@ -1,1 +1,1 @@
-# weido-club
+# weirdo-club
